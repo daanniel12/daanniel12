@@ -1,4 +1,4 @@
-### Olá pessoas, Prazer Daniel Silva. 👋
+### Olá pessoas, Eu sou o Daniel Silva. 👋
 
 <div align="center">
   <a href="https://github.com/daanniel12">
